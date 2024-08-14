@@ -1,1 +1,1 @@
-# Ecopragya
+# Pragati
